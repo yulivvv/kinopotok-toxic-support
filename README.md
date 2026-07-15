@@ -1,1 +1,0 @@
-# kinopotok-toxic-support
